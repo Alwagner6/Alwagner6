@@ -9,7 +9,9 @@
 - 🧠 Knowledgist. Look at sentences 2,3, and 4.
 - 👨🏾‍🎨 Artisan. I like to work and create with my hands. Carpentry, Auto Motive, the TRADES!
 - 🦄 AnimalsFTW. Dog owner. Plan to own a falcon or hawk. Definitely want a horse and get well at riding.
-- 📖 Poetry/Writing/Art. Speaks for itself! 
+- 📖 Poetry/Writing/Art. Speaks for itself!
+- 💪🏾 Gym rat, althetically inclined, hockey, football, martial arts enthusiast, push to the limits!
+- 🪴 Definitely a plant dad. Working on a library full of books and plants.
 <!---
 Alwagner6/Alwagner6 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
